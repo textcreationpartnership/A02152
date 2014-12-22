@@ -37,33 +37,37 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Penelopes vveb VVhere, in a christall mirror of feminine perfection represents to the view of euery 
+
+1. To the Right Honorable
+& vertuous his very good Ladie
+and Mistresse, the Lady Margaret Countesse
+of Cumberland: and to the no lesse Honorable and vertuous
+the Lady Anne Countesse of Warwicke: Robert
+Greene wisheth increase of Honor
+and Vertue.
+
+1. TO THE GENTLEMEN
+READERS HEALTH.
+
+1. To the Courteous and Courtly Ladyes
+of England.
+
 #####Body#####
 
-1. Penelopes Tale.
+1. Penelopes VVeb.
 
-    _ Egistus Oration to the
+    _ Penelopes Tale.
+
+      * Egistus Oration to the
 Lords of Egipt.
 
-1. The second nights discourse.
+    _ The second nights discourse.
 
-    _ Egistus Oration to the
-Lords of Egipt.
+    _ Penelopes second tale.
 
-1. Penelopes second tale.
+    _ The third nights discourse.
 
-    _ Egistus Oration to the
-Lords of Egipt.
-
-1. The third nights discourse.
-
-    _ Egistus Oration to the
-Lords of Egipt.
-
-1. Penelopes third tale.
-
-    _ Egistus Oration to the
-Lords of Egipt.
+    _ Penelopes third tale.
 
 **Types of content**
 
